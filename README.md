@@ -19,8 +19,30 @@ This summer, I went to Cancun, Mexico with my family. We went snorkeling, kayaki
 
 My favorite dish this summer was Mulberry Street Pizza. I went to eat there with my family, and it is the best pizza I have ever had 100%.
 
-In this class, I hope to become a seasoned and strong coder 
+In this class, I hope to become a seasoned and strong coder and further understand how computer programs function.
+
+The most memorable experience I had this summer was getting my Kobe 6 Total Orange shoes. I had been waiting for them for weeks and was very excited when they came.
+
+I have no recent tech-related projects. I did manage to fix my TV remotes' microphone, however, which had not been working. 
+
+I currently participate in basketball and track and field at Chatsworth, and over the summer I ran, swam, played basketball, threw the football, and more. 
+
+One creative endeavour I partake in is making homemade cards for my loved ones on their birthdays or holidays. I often draw images of things each respective person likes or make funny drawings using cut out pictures of them. 
+
+I did no community service or volunteer work. 
+
+I did not take part in any family traditions. 
+
+This summer, my favorite memomory with my friends was being at the pool with all my club basketball teammates and our families in Vegas. We were there for a tournament, and we had a great time. We were all in the hot tub talking about games and life and whatnot. Truly a joyous and memorable experience.
+
+Because I love to read and to learn, I wish to be in a field that requires me to bring, utilize, and expand my knowledge. 
+
+
+
+
+
 ## My Playlist
 
 
 ## My Collage/Mood Board
+
