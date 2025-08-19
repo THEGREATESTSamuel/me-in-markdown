@@ -42,7 +42,8 @@ Because I love to read and to learn, I wish to be in a field that requires me to
 
 
 ## My Playlist
-
+[My Spotify Playlist](https://open.spotify.com/playlist/5ZYmjid9Dbv0zNBiu8Klje?si=6ff34dca6b02457a&pt=57f06eb562bbe58c15d72f630922fe27)
 
 ## My Collage/Mood Board
+![My Collage]()
 
