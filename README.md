@@ -11,7 +11,16 @@ Something new I learned was understanding why time slows down as you approach li
 
 A recent achievement I have is making varsity basketball at Chatsworth. 
 
-Some fun facts about me is that I like learning about dinosaurs, I have a dog, 
+One fun fact about me is that I like learning about dinosaurs.
+
+This school year, I hope to get all A's and pass every AP test with at least a 4.
+
+This summer, I went to Cancun, Mexico with my family. We went snorkeling, kayaking, travelled to Xcaret and ate very good food.
+
+My favorite dish this summer was Mulberry Street Pizza. I went to eat there with my family, and it is the best pizza I have ever had 100%.
+
+In this class, I hope to become a seasoned and strong coder 
 ## My Playlist
+
 
 ## My Collage/Mood Board
